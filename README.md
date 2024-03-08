@@ -1,0 +1,1 @@
+# gold_solar_products_files_1
